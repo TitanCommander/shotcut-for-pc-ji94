@@ -1,4 +1,4 @@
-# 
+# custom Shotcut for PC | Shotcut for Windows Tool | slow-motion + 4K-export is the best Shotcut for PC | Shotcut for Windows tool, featuring slow-motion and 4K-export. Powerful,
 
 
 
